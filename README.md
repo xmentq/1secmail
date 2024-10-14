@@ -1,1 +1,1 @@
-# 1secmail.github.io
+# 1secmail
